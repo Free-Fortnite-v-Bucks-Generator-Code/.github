@@ -2,7 +2,7 @@
 
 CLICK HERE : https://newsnioworld.com/fortnite-g
 
-<strong> <a href="(https://newsnioworld.com/fortnite-g)"> CLICK HERE TO FREE GENERATOR</a> </strong>
+CLICK HERE GET FREE : https://newsnioworld.com/fortnite-g
 
 
 
